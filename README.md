@@ -5,5 +5,3 @@ webschool
  
  
  FUCK
-
-http://www.laotraweb.com/foro/showthread.php?t=2233145
